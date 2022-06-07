@@ -1,4 +1,4 @@
-# Shout to instuctor Boko!
+# Shoutout to instuctor Boko!
 
 # Description
 
