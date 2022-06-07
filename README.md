@@ -1,4 +1,4 @@
-# Advanced React Boko
+# Shout to instuctor Boko!
 
 # Description
 
